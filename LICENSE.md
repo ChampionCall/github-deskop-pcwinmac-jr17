@@ -1,4 +1,4 @@
-# 
+# Profissional GitHub Desktop predefinições para Mac OS | Melhor GitHub Desktop predefinições para PC Windows. Com gerenciamento de usuários e formatação automática — otimizado para máximo desempenho em cada plataforma.
 
 
 
